@@ -1,1 +1,1 @@
-# Estad-stica-2-2020-2
+# Estadistica-2-2020-2
